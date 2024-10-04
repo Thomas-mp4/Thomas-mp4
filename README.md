@@ -1,7 +1,6 @@
 ### Hi there 👋, my name is Thomas
 #### Currently pursueing my MSc in Business & IT
-![Currently pursueing my MSc in Business & IT](https://media.licdn.com/dms/image/D4E16AQEcRakrGi9ugA/profile-displaybackgroundimage-shrink_350_1400/0/1703776482670?e=1726099200&v=beta&t=VIUVeqQaPDk3hPNisqUyhPnVTBjDQfdryBIJxsXFzOw)
-
+![](https://media.licdn.com/dms/image/v2/D5616AQHD-n4Y4Oi4fA/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1726496017827?e=1733356800&v=beta&t=VagbNqnZdxO6fek1rkV6NHAxAXYPwQIgvVf9L9QdMSk)
 
 
 
